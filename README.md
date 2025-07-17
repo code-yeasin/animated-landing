@@ -7,4 +7,3 @@ Special Thanks/Credits to:
 
 - Leonie Hendrikse & Jeroen Stock — [www.stockdutchdesign.com/](http://stockdutchdesign.com/);
 - [Exo Ape](https://exoape.com/) — Branding & Digital Innovation;
-- Petr Tichy — For [ihatetomatoes](https://ihatetomatoes.net/);
